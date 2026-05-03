@@ -1,0 +1,1 @@
+# kanji-cross-burst.com
